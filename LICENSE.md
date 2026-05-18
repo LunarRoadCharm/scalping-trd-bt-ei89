@@ -1,4 +1,4 @@
-# 
+# professional ftx trading bot addons is the best ftx trading bot addons with low-frequency and take-profit. Safe, reliable, and optimized for CEX, DEX, and algorithmic trading
 
 
 
